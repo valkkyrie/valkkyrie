@@ -1,4 +1,2 @@
 # Holo gente!
 ## 👽
-
-My pleasure!
